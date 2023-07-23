@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @GR33n
-- 📫 How to reach me add me on Discord GRƐƐᏁ#0001
+- 👋 Hi, I’m @GR__n
+- 📫 How to reach me add me on Discord '.gr__n'
